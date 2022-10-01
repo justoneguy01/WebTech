@@ -42,7 +42,7 @@ A cyberpunkot az ellenőrizhetetlenül **gyors technikai (elsősorban informatik
 ![Cyber implants](https://static.wikia.nocookie.net/cyberpunk/images/0/04/Cyberware_Spine_The_Diner_Trailer.png/revision/latest?cb=20210625235551)  
 
 Anime ajánló: [Cyberpunk Edgerunners](https://www.netflix.com/hu/title/81054853)    
-![Cyberpunk edgerunners img](https://images2.alphacoders.com/127/1272824.png)
+![Cyberpunk edgerunners img](https://leganerd.com/wp-content/uploads/2022/09/cyberpunk-edgerunners-netflix-recenzja.jpeg)
 
 
 
